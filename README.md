@@ -25,6 +25,8 @@ $$\space \color{white} I \space \color{white }know \space \color{white} but \spa
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
+𝘏𝘦𝘭𝘭𝘰 [𝘸𝘦𝘮𝘮𝘣𝘺!,,♡](https://github.com/sspacedoutz) !
+
 ORIGINALLY AS: @dummyinbed ,,
 <div align="center">
 
@@ -45,13 +47,11 @@ ORIGINALLY AS: @dummyinbed ,,
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-TAX DUO HEAVY COMF / C'link ,
 https://github.com/user-attachments/assets/4dca325b-386d-475e-9b09-a1cd14473bc4
+
+TAX DUO HEAVY COMF / C'link ,
 
 I heavykin eggchan, doubles are okay but please dont rub it in my face
 
 Wemmbu kins are more than welcome to call themself wemmbu around me
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1436841118242443384/IMG_8496.jpg?ex=69111211&is=690fc091&hm=f35ec35abfd839929d8d2a3cca7bbc12b0ff69b56be81a80f3765552995d6157&=&format=webp&width=846&height=846)
-
-𝘏𝘦𝘭𝘭𝘰 [𝘸𝘦𝘮𝘮𝘣𝘺!,,♡](https://github.com/sspacedoutz) !
