@@ -50,12 +50,7 @@ ORIGINALLY AS: @dummyinbed ,,
 
 https://github.com/user-attachments/assets/4dca325b-386d-475e-9b09-a1cd14473bc4
 
-TAX DUO HEAVY COMF / C'link ,
-
-I heavykin eggchan, doubles are okay but please dont rub it in my face
-
-Wemmbu kins are more than welcome to call themself wemmbu around me
-
+TAX DUO HEAVY COMF
 --
 
 I dislike being purposely covered, if I'm laying down that means I am okay with being covered,
