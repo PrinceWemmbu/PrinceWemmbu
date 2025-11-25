@@ -35,14 +35,14 @@ ORIGINALLY AS: @dummyinbed ,,
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Journals&color=blueviolet&style=flat)
 
-[𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
+[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
 <div align="center">
 
 
 <div align="center">
 
-ㅤ[𝘙𝘖𝘉𝘓𝘖𝘟](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
+ㅤ[𝘚𝘵𝘳𝘢𝘸𝘗𝘢𝘨𝘦](https://dolliestprince.straw.page/) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
 <div align="center">
 <div align="center">
   
