@@ -26,8 +26,6 @@ $$\space \color{white} I \space \color{white }know \space \color{white} but \spa
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
-𝘏𝘦𝘭𝘭𝘰 [𝘸𝘦𝘮𝘮𝘣𝘺!,,♡](https://github.com/sspacedoutz) !
-
 ORIGINALLY AS: @dummyinbed ,,
 <div align="center">
 
