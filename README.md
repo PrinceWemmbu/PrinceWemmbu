@@ -8,7 +8,7 @@
 
 $${\color{white}Theres \space \color{white} More \space \color{white} Ways  \space \color{white}To  \space \color{white}Be \space \color{white}Strong  \space \color{white}Than \space \color{white}PvP'ing \space \color{white}Y'know? {}}$$
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1446931698011996170/GvfMHsRWQAAUatL.jfif?ex=6935c7a7&is=69347627&hm=595ea67b292b5010578d284050061efe107d6ee53632b987936e56bf257b8755&=&format=webp&width=748&height=496)
+![](https://media.discordapp.net/attachments/1028737434252488756/1446934297394020352/image.png?ex=6935ca13&is=69347893&hm=38f6e66073c2a972b92a0069dcefb84ca83d778d10f53bc6998603b5ebd9436f&=&format=webp&quality=lossless&width=710&height=846)
 
 <div align="center">
 
@@ -47,3 +47,5 @@ ORIGINALLY AS: @dummyinbed ,,
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
 https://github.com/user-attachments/assets/4dca325b-386d-475e-9b09-a1cd14473bc4
+
+![](https://pbs.twimg.com/media/G5VPUmfWYAAUpml?format=jpg&name=small)
