@@ -28,6 +28,8 @@ $${\color{white}He \space \color{white}Said \space \color{white} :  \space \colo
 ORIGINALLY AS: @dummyinbed ,,
 <div align="center">
 
+[𝘞𝘦𝘮𝘮𝘣𝘶](https://github.com/IHASAFACE-LULZ)
+
 ✦⋆𓆩✧𓆪⋆✦
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Lost_Causes&color=orange&style=flat)
