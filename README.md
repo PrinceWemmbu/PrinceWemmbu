@@ -19,7 +19,7 @@ $$\space \color{white}Then  \space \color{white}I \space \color{white}Lost \spac
 
 --
 
-$${\color{white}He \space \color{white}Said \space \color{white} :  \space \color{white}"You're \space \color{white}A \space \color{orange}Lost \space \color{orange}Cause. \space \color{wht}{}}$$
+$${\color{white}He \space \color{white}Said \space \color{white} :  \space \color{white}"You're \space \color{white}A \space \color{orange}Lost \space \color{orange}Cause. \color{white}"{}}$$
 
 
 
