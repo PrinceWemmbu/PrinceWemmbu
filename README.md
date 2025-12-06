@@ -1,26 +1,25 @@
 
-
 <div align="center">
 
 
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{white}Theres \space \color{white} More \space \color{white} Ways  \space \color{white}To  \space \color{white}Be \space \color{white}Strong  \space \color{white}Than \space \color{white}PvP'ing \space \color{white}Y'know? {}}$$
+$${\color{purple}My \space \color{orange} Mentor \space \color{white} Told  \space \color{white}Me  \space \color{white}He \space \color{white}Doesn't  \space \color{white}Wanna \space \color{white}Teach \space \color{white}Me \space \color{white}Anymore {}}$$
 
 ![](https://media.discordapp.net/attachments/1028737434252488756/1446934297394020352/image.png?ex=6935ca13&is=69347893&hm=38f6e66073c2a972b92a0069dcefb84ca83d778d10f53bc6998603b5ebd9436f&=&format=webp&quality=lossless&width=710&height=846)
 
 <div align="center">
 
-$${\color{white}You \space \color{white}Might \space \color{white} Be  \space \color{white}Okay  \space \color{purple}Now. {}}$$
+$${\color{white}And \space \color{white}I \space \color{white} Wish  \space \color{white}I  \space \color{white}Didn't \space \color{white}Care \space \color{white}I \space \color{white}Thought \space \color{white}He \space \color{white}Was \space \color{white}Really \space \color{white}Cool.{}}$$
 
-$$\color{white}But  \space \color{white}One \space \color{white}Day \space \color{white}You're {\color{white}Gonna \space \color{white} Slip \space \color{white} Up  \space \color{white}And  \space \color{purple}Die {}}$$
+$$\color{white}So  \space \color{white}I \space \color{white}Stopped \space \color{white}Training {\color{white}For \space \color{white} Battle {}}$$
 
-$$\space \color{white}Then  \space \color{white}Whats \space \color{white}Gonna \space \color{white} Happen {\color{white} To \space \color{white} Me, \space \color{white} Yknow?{}}$$
+$$\space \color{white}Then  \space \color{white}I \space \color{white}Lost \space \color{white} To {\color{white} Flame{}}$$
 
 --
 
-$$\space \color{white} I \space \color{white }know \space \color{white} but \space \color{white} What \space \color{white}I'm\space \color{white}Saying\space \color{white}Is \space \color{white}Yeah,  \space \color{white}You \space \color{white}Might \space \color{white}Get {\color{white}Better. \space \color{white} But, \space \color{white} You'll \space \color{white} be \space \color{white} \space \color{purple} perfect.{}}$$
+$${\color{white}He \space \color{white}Said \space \color{white} :  \space \color{white}"You're \space \color{white}A \space \color{orange}Lost \space \color{orange}Cause. \space \color{wht}{}}$$
 
 
 
@@ -31,7 +30,7 @@ ORIGINALLY AS: @dummyinbed ,,
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Journals&color=blueviolet&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Lost_Causes&color=orange&style=flat)
 
 [𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://dolliestprince.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
@@ -46,6 +45,4 @@ ORIGINALLY AS: @dummyinbed ,,
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-https://github.com/user-attachments/assets/4dca325b-386d-475e-9b09-a1cd14473bc4
-
-![](https://pbs.twimg.com/media/G5VPUmfWYAAUpml?format=jpg&name=small)
+https://github.com/user-attachments/assets/ec73f5c1-d407-46d9-9b26-b3db6099c277
